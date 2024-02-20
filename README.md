@@ -1,1 +1,8 @@
 # prelim_Project
+
+MEMBERS:
+ADRIAN NAAG
+JEROME RONCESVALLES
+FRANCISCO (nakalimutan pangalan/apelyido) 
+ELIZA MAE ABOCADO 
+JUVEN BULALACAO 
